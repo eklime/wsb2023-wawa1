@@ -1,1 +1,1 @@
-# wsb2023-wawa1
+# Wyższa Szkoła Bankowa rocznik 2023 grupa Wawa1
